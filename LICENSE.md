@@ -1,4 +1,4 @@
-
+Get the ultimate Figma for macOS brush with new Brushes for Figma for macOS - typography tools and blend modes. Featuring typography tools and blend modes, it's the best choice
 
 
 
